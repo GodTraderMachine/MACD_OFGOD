@@ -1,0 +1,2 @@
+# MACD_OFGOD
+TRADE
